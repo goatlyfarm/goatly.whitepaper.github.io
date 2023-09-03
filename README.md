@@ -1,1 +1,0 @@
-# goatly.whitepaper.github.io
